@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @itzdavidrojas
+- 👀 I’m interested in how computers operate and communicate with one another.
+- 🌱 I’m currently learning Network System/Admin
+- 💞️ I’m looking to collaborate on how to produce electricity with the everyday use of highways.
+- ⚡ Fun fact: I Easily Laugh LoL 
